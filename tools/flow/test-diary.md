@@ -10,7 +10,7 @@ Hochwasser in Deutschland
 Thema: Hochwasser in Deutschland – Ausnahmezustand oder neue Normalität?   
 Lokalisiere Deutschland in Europa. (Karte)    
 Beschreibe die klimatischen Verhältnisse in Deutschland (Atlas, Internet).   
-Definiere den Begriff: Hochwasser   Welche unterschiedlichen Ursachen stecken hinter Hochwasser? Welche Rolle spielt der Mensch? (bezieht S. 124/125 M1,M2 mit ein!!)   
+Definiere den Begriff: Hochwasser   Welche unterschiedlichen Ursachen stecken hinter Hochwasser? Welche Rolle spielt der Mensch?   
 Beschreibe, inwieweit Deutschland in den letzten Jahrzehnten von Hochwassern betroffen war (Zeitleisten, Recherche).   
 Stelle dabei ein Jahr und eine Region besonders deutlich vor: 2021 Ahrtal (Karten)   
 In welchen Teilen Deutschlands war die Hochwassergefahr besonders stark?   
